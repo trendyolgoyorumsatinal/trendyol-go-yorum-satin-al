@@ -26,6 +26,7 @@ Trendyol Go gibi rekabetin yoğun olduğu platformlarda, öne çıkmak ve müşt
 ✅ 50 Trendyol puan ve yorum (1.500 TL) 
 
 ✅ 100 Trendyol puan ve yorum (3.000 TL)
+
 ---
 
 ## Yorum Satın Almanın Trendyol Üzerindeki Etkileri
