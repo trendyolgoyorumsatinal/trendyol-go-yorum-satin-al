@@ -19,6 +19,11 @@ Trendyol Go gibi rekabetin yoğun olduğu platformlarda, öne çıkmak ve müşt
 
 ## Trendyol Yorum Fiyatları
 
+✅ 10 Trendyol puan ve yorum (300 TL)
+✅ 20 Trendyol puan ve yorum (600 TL) 
+✅ 50 Trendyol puan ve yorum (1.500 TL) 
+✅ 100 Trendyol puan ve yorum (3.000 TL)
+
 ✅ **10 Trendyol puan ve yorum** 300 TL 
 ✅ **20 Trendyol puan ve yorum** 600 TL 
 ✅ **30 Trendyol puan ve yorum** 900 TL
