@@ -9,19 +9,19 @@ Trendyol Go gibi rekabetin yoğun olduğu platformlarda, öne çıkmak ve müşt
 ## Hemen iletişime geçin
 
 **Sorularınız mı var?**  
-📞 [WhatsApp ile iletişime geç](https://wa.me/+6283892872310)
+📞 [WhatsApp ile iletişime geç](https://wa.me/+905428597450)
 
 ---
 
 ## Trendyol Yorum Fiyatları
 
-✅ 10 Trendyol puan ve yorum (300 TL)
+✅ 10 Trendyol puan ve yorum (350 TL)
 
-✅ 20 Trendyol puan ve yorum (600 TL) 
+✅ 20 Trendyol puan ve yorum (700 TL) 
 
-✅ 50 Trendyol puan ve yorum (1.500 TL) 
+✅ 50 Trendyol puan ve yorum (1.750 TL) 
 
-✅ 100 Trendyol puan ve yorum (3.000 TL)
+✅ 100 Trendyol puan ve yorum (3.500 TL)
 
 ---
 
@@ -45,7 +45,7 @@ Yorumlar sadece satış yapmaz; aynı zamanda markanızın prestijini artırır.
 ## Hemen iletişime geçin
 
 **Sorularınız mı var?**  
-📞 [WhatsApp ile iletişime geç](https://wa.me/+6283892872310)
+📞 [WhatsApp ile iletişime geç](https://wa.me/+905428597450)
 
 ---
 
@@ -60,7 +60,7 @@ Restoranlar için olumlu yorumlar hayati öneme sahiptir. "Lezzetli, sıcak geld
 ## Hemen iletişime geçin
 
 **Sorularınız mı var?**  
-📞 [WhatsApp ile iletişime geç](https://wa.me/+6283892872310)
+📞 [WhatsApp ile iletişime geç](https://wa.me/+905428597450)
 
 ---
 
